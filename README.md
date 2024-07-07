@@ -1,2 +1,2 @@
 # Hello-world
-My first repository on GitHub.
+I am dedicated to pursuing cybersecurity certifications and have a passion for watching sports⚽️
